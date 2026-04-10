@@ -7,7 +7,7 @@
 
 ╰𓏲.  ˙܀   𝓕๑𐑾ᧉᥳᧉ𐑾  .    ࿐¹ིྀ    
 
-- ﹑⟡ 　　﹒ 　 *𝓛ou*　﹒　*𝓜iso*  ◞　
+- ﹑⟡ 　　﹒ 　 *𝓛ouise*　﹒　*𝓛ou*  ◞　
 ⤷　　  *𝓖eorge 𝓗arrison* romantic yume　✧˖°.
 ✦　　౨౿　hypersharing. doubles int　﹒ 　︵︵
 ⊹ ࣪ ˖ 　﹒  social anxiety. pls b patient  𓏹ㅤ
