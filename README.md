@@ -12,7 +12,7 @@
 
 - ﹑⟡ 　　﹒ 　 *𝓛ouise*　﹒　*𝓛ou*  ◞　
 ⤷　　  RPF yumeshipper　✧˖°.
-✦　　౨౿　hypersharing. doubles int　﹒ 　︵︵
+✦　　౨౿　   　﹒ 　︵︵
 ⊹ ࣪ ˖ 　﹒  social anxiety. pls b patient  𓏹ㅤ
 ࿚   　 †₊◞
 <img width="1280" height="103" alt="IMG_8388" src="https://github.com/user-attachments/assets/cb778711-912e-4f7c-af11-801baa302886" />
